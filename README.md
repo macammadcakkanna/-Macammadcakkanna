@@ -1,2 +1,2 @@
-# -Macammadcakkanna
+Mohammedhakana1
 እራስን መሆን ብልህነት ነዉ። እንደራስ መኖር ደግሞ አዋቂነት ነዉ። ስለዚህ እኔ እራሴዉ ነኝ።
